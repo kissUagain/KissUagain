@@ -5,7 +5,7 @@
             
 
       
- *FYI I am not into online dating BC I ALAREADY HAVE A GIRLFRIEND SO pls, ill make that pretty clear so PLEASE do NOT ship me w any1 other than my girlfriende/srs bc it makes me very uncomfortable.*
+ *FYI I am not into online dating BC I ALREADY HAVE A GIRLFRIEND SO pls, ill make that pretty clear so PLEASE do NOT ship me w any1 other than my girlfriende/srs bc it makes me very uncomfortable.*
 
  
  *ALSO I am offtab/afk pretty often so I truly do apologize if I dont respond to a whisper or an interaction, so dont think I am ignoring any1 on purpose!* (❁´◡`❁)/
