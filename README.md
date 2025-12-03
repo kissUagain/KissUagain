@@ -1,7 +1,10 @@
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="36" alt="image" src="https://github.com/user-attachments/assets/22a0f971-2437-4852-8de2-f7fac1bc4ac2" />
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="51" alt="image" src="https://github.com/user-attachments/assets/a315b8db-99ca-416e-bcb6-b4505a3eff9b" />
 
 
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="650" height="277" alt="image" src="https://github.com/user-attachments/assets/82040ad4-c57c-468f-8403-4a63ab5445e1" />
+
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/bf7c16d7-d07f-45c8-987f-0fb07c34f43f" />
+
+
 
       
 
@@ -12,7 +15,15 @@
 
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, so please do not take anything personally!!* (❁´◡`❁)/
+   
+
+          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა 
+⠀⠀⠀⠀
+⠀⠀⠀⠀
+
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="748" height="250" alt="image" src="https://github.com/user-attachments/assets/ed046b28-01df-41a1-bf1e-7e835c31754d" />
 
 
 
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="36" alt="image" src="https://github.com/user-attachments/assets/bc80376a-a6ec-4a1e-84e9-fe43271cb76c" /> 
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="40" alt="image" src="https://github.com/user-attachments/assets/8c08a227-942d-40f6-949b-08752a870931" />
+ 
