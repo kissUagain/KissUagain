@@ -15,6 +15,8 @@
 
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, so please do not take anything personally!!* (❁´◡`❁)/
+ 
+ *I do find comfort in just generally cuddling w ppl in this pixel game unfortunately, please do inform me if im around too much because i tend to just stay around just cuddling* ˚ °(°.◜ᯅ◝°)°｡
    
 
           ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა 
