@@ -11,10 +11,8 @@
        
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎໒꒰݂𓂂ིྀᴗ . ᴗ𓂂݂ᐢ꒱ིྀ𐰉 
 
-      
- *FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
+*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
  uncomfortable.*
-
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, 
  so please do not take anything personally!!* (❁´◡`❁)/
