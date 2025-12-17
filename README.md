@@ -17,6 +17,8 @@
        
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎໒꒰݂𓂂ིྀᴗ . ᴗ𓂂݂ᐢ꒱ིྀ𐰉 
 
+*I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
+
 *FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
  uncomfortable.*
  
