@@ -23,21 +23,23 @@
       
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
        
-         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎໒꒰݂𓂂ིྀᴗ . ᴗ𓂂݂ᐢ꒱ིྀ𐰉 
+         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b57c1c37-6e67-4810-8e13-dfd5bdbafd28" />
+
 
 *I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
 
-*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
+⠀⠀⠀⠀⠀⠀⠀*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
  uncomfortable.*
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, 
  so please do not take anything personally!!* (❁´◡`❁)/
  
- *I do find comfort in just generally cuddling w ppl in this pixel game unfortunately, please do inform me if im around too much 
+ ⠀⠀⠀⠀⠀⠀⠀*I do find comfort in just generally cuddling w ppl in this pixel game unfortunately, please do inform me if im around too much 
  because i tend to just stay around just cuddling* ˚ °(°.◜ᯅ◝°)°｡
    
 
-          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ૮꒰ ྀི > . < ྀི꒱ა 
+          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
+
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 
