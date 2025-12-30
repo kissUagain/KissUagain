@@ -14,16 +14,11 @@
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1920" height="467" alt="image" src="https://github.com/user-attachments/assets/4606b8e5-be13-4a12-b71b-41a987945148" />
 
-
-
-
-
-
-
-      
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
        
-         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b57c1c37-6e67-4810-8e13-dfd5bdbafd28" />
+         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d76205fe-8bb6-4139-a771-32aa7164821b" />
+
+
 
 
 *I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
@@ -38,7 +33,7 @@
  because i tend to just stay around just cuddling* ˚ °(°.◜ᯅ◝°)°｡
    
 
-          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
+          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
 
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
@@ -52,7 +47,8 @@
 
 
 
-  ⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀<img width="600" height="48" alt="image" src="https://github.com/user-attachments/assets/3e9943a5-66dd-4832-a047-567500571bdb" />
+  ⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀<img width="600" height="48" alt="image" src="https://github.com/user-attachments/assets/09ec700a-46d8-4c57-8f46-1bac39feb577" />
+
 
 
 
