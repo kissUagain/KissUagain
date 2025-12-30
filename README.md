@@ -24,13 +24,13 @@
 *I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
 
 ⠀⠀⠀⠀⠀⠀⠀*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
- uncomfortable.*
+ extremely uncomfortable.*
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, 
  so please do not take anything personally!!* (❁´◡`❁)/
  
- ⠀⠀⠀⠀⠀⠀⠀*I do find comfort in just generally cuddling w ppl in this pixel game unfortunately, please do inform me if im around too much 
- because i tend to just stay around just cuddling* ˚ °(°.◜ᯅ◝°)°｡
+ ⠀⠀⠀⠀⠀⠀⠀*I unfortunately do find comfort in just generally cuddling w ppl in this pixel game. PLEASE do inform me if im around too much 
+ because I tend to do that quite a lot uhm..* ˚ °(°.◜ᯅ◝°)°｡
    
 
           ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
