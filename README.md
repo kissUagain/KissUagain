@@ -16,7 +16,7 @@
 
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
        
-         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d76205fe-8bb6-4139-a771-32aa7164821b" />
+         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d76205fe-8bb6-4139-a771-32aa7164821b" />
 
 
 
@@ -33,7 +33,7 @@
  because i tend to just stay around just cuddling* ˚ °(°.◜ᯅ◝°)°｡
    
 
-          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
+          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
 
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
