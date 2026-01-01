@@ -24,7 +24,7 @@
 *I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
 
 
-⠀⠀⠀⠀⠀⠀⠀*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1/srs bc it makes me 
+⠀⠀⠀⠀⠀⠀⠀*FYI I am not into online dating, ill make that pretty clear so PLEASE do NOT ship me w any1 other than my GIRLFRIEND who i love so dearly/srs bc it makes me 
  extremely uncomfortable.*
  
  *ALSO I go nonverbal very very often so I truly do apologize for that and if I in general dont respond to a whisper or an interaction, 
