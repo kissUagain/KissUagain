@@ -14,13 +14,9 @@
 
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1920" height="467" alt="image" src="https://github.com/user-attachments/assets/4606b8e5-be13-4a12-b71b-41a987945148" />
-
          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
        
-         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d76205fe-8bb6-4139-a771-32aa7164821b" />
-
-
-
+         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=f6pxe4mgpcr9ej2ocpiuk7q2k&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=fafafa&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 *I indeed am often afk, sleeping or away in general so if you see me around pls do come and cuddle :3 and uhh i might msg if im not too exhausted ok bye!!*
 
@@ -38,8 +34,6 @@
           ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4e04d953-0c30-4da5-9f39-55b73a512970" />
 
 ⠀⠀⠀⠀
-⠀⠀⠀⠀
-
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  <img width="1920" height="467" alt="image" src="https://github.com/user-attachments/assets/d734ae6a-bb8e-4a64-85d0-72332e5a7d6b" />
 
 
